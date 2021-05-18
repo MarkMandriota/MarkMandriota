@@ -1,3 +1,2 @@
-### Hi there 👋
-
+### Yeah
 **I'm a fucking Russian programmer**
