@@ -1,2 +1,2 @@
 ### Yeah
-**I'm a fucking Russian programmer**
+**I'm a fucking Russian good programmer**
